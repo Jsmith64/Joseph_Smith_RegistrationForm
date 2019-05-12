@@ -1,1 +1,0 @@
-# Joseph_Smith_RegistrationForm
